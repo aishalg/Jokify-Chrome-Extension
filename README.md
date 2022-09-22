@@ -6,7 +6,8 @@ Got Bored? Read a Joke!
 
 
 
-![image](https://user-images.githubusercontent.com/99723773/191693809-488e6d5a-cadb-4d1d-a2c2-6c86ef30f7d1.png)
+![image](https://user-images.githubusercontent.com/99723773/191694043-850cd4cb-c5f4-41cc-a366-31f9ce8d5b9a.png)
+
 
 
 
